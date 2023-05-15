@@ -15,6 +15,10 @@
 
 MEU CANAL NO YOUTUBE: [Youtube](https://www.youtube.com/@koskinhol6489/featured)
 
+MEU PERFIL NO ROBLOX: [Roblox](https://www.roblox.com/users/1343802344/profile)
+
+
+
 
 ![](https://media.tenor.com/4TT38rFtbIIAAAAC/nagatoro.gif)
 
